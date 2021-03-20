@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @citymind
-- 👀 I’m interested in digital art, creating art in gneral, harry potter and technic things
+- 👀 I’m interested in digital art, creating art in general, harry potter and technic things
 - 🌱 I’m currently learning how to get better every day
 - 📫 How to reach me: find me on instagram @art_undertheskies
 
